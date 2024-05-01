@@ -1,2 +1,5 @@
-hi
-goog moring
+amogh
+vvd
+d
+\dv
+dcc
